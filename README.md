@@ -1,4 +1,4 @@
-- 👋 woe ngab, I’m @ArizBym
+- 👋 Hallo ngab,kenalan skuy 😁 I’m @ArizBym
 - 📫 How to reach me https://api.whatsapp.com/send?phone=6285799788247
 
 <!---
